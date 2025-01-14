@@ -1,7 +1,7 @@
 ## **Comprehensive Roadmap for Mastering Excel**
 
 ---
-![WhatsApp Image 2025-01-15 at 00 42 09_c0d424bc](https://github.com/user-attachments/assets/40797c21-771a-4026-b74b-6d72df01980f)
+![Comprehensive Roadmap for Mastering Excel - visual selection (1)](https://github.com/user-attachments/assets/434229ab-6590-4352-80f0-cb1226ef983e)
 
 ---
 
